@@ -1,7 +1,7 @@
-Hi there , I'm lermeeexrd👋 <img src="https://komarev.com/ghpvc/?username=leeerme&color=00ff54"/>
+Hi there , I'm lawyer👋 <img src="https://komarev.com/ghpvc/?username=leeerme&color=00ff54"/>
 
 <p align="left"></p>
-My Discord Acc: lermexrd#9274
+My Discord Acc: lawyer#9274
 
 <h3 align="left">🌊 My Discord Status:</h3>
 <p align="left">
